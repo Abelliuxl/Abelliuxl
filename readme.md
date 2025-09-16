@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Abelliuxl
+# 👋 Hi, I'm Abel Liu
 
 ## 🏥 About Me
 - Orthopedic professional working in hospital settings  
